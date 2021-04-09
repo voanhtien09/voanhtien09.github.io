@@ -1,4 +1,4 @@
 # AppList
 
-* [Englist Movie](https://apps.apple.com/us/app/best-movie/id1542033660)
+* [Englist Movie](https://apps.apple.com/us/app/watched-movies-and-tvshow/id1562116964)
 
