@@ -35,9 +35,9 @@ If there are any questions regarding this privacy policy you may contact us usin
 
 We love hearing your voice. Let's contact us and stay connected!
 
-Get in touch with me for support via: [Mail](voanhtien09@outlook.com)
+Get in touch with me for support via: [Mail](voanhtien09@yahoo.com)
 
-Email: voanhtien09@outlook.com
+Email: voanhtien09@yahoo.com
 
 Address: Cau Giay Street, Bac Tu Liem District, Hanoi.
 
